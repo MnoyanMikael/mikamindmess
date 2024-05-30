@@ -1,2 +1,2 @@
 # Социальные сети Микаэля Мнояна
-### https://theomorphic.github.io/mikamindmess
+### https://mnoyanmikael.github.io/mikamindmess
